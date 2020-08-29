@@ -1,2 +1,2 @@
-# kadiyalamani15.github.io
+# Manish Chandra K
 Profile
